@@ -1,0 +1,5 @@
+- 👋👐👌 Hi, I’m Aeisha Kim M. Nicer but you can call me Aeisha, kim or shaki 
+- 👀👉🎶🎸🎹-🎨👩‍🎨🖼️ I’m interested in Music and Arts
+- 🌱🏫🎒 I’m currently learning at Golden link College Foundation INC.as a Grade 9 Student
+- 📫 How to reach me? Just contact my Gmail and messager account 
+- 😄 Pronouns: She/her
